@@ -1,4 +1,4 @@
-# Mini_Project_1_Muhammad_Sholahuddin_Sanjaya
+# Mini_Project_Muhammad_Sholahuddin_Sanjaya
 
 Nama: Muhammad Sholahuddin Sanjaya
 
